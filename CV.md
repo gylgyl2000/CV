@@ -7,12 +7,19 @@
 <img src="https://avatars0.githubusercontent.com/u/61700419?s=460&amp;u=0a3696709fa619172f279bb22989c8ea70dd045d&amp;v=4" alt="avatar" style="zoom:50%;" />
 
 10 rue Axular
+
 64500 Saint-Jean-de-Luz
+
 51 ans
+
 Célibataire, 1 enfant
+
 Nationalité française
+
 Permis B
+
 🖁 : 06.87.53.88.01
+
 🖅 : gylgyl2000@protonmail.com
 
 ------
